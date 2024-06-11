@@ -4,7 +4,7 @@
 - 💞️ casada
 - 📫 Como entrar em contato comigo 
 - 😄 Pronomes: ela dela 
-
+- ❤️ amo meu namorado
 
 <!---
 gigidomal/gigidomal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
