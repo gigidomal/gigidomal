@@ -1,4 +1,4 @@
-👋 Olá, sou geovanna
+![elbicho-vicotrevs](https://github.com/gigidomal/gigidomal/assets/171805744/9d86c728-2534-45d4-bb9d-9ac54347546b)👋 Olá, sou geovanna
 - 7️⃣ gosto do cristiano ronaldo
 - 🌱 Atualmente estou aprendendo alura
 - 💞️ casada
@@ -6,7 +6,5 @@
 - 😄 Pronomes: ela dela 
 - ❤️ amo meu namorado
 
-![](https://media1.tenor.com/m/hrMpWeOG6XAAAAAd/elbicho-vicotrevs.gif)
-gigidomal/gigidomal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+![](https://tenor.com/pt-BR/view/elbicho-vicotrevs-cr7-gif-18626961)
