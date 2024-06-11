@@ -1,5 +1,5 @@
 👋 Olá, sou geovanna
-- gosto do cristiano ronaldo
+- 7️⃣ gosto do cristiano ronaldo
 - 🌱 Atualmente estou aprendendo alura
 - 💞️ casada
 - 📫 Como entrar em contato comigo 
