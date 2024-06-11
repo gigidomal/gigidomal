@@ -7,4 +7,4 @@
 - ❤️ amo meu namorado
 
 
-![](https://media1.tenor.com/m/hrMpWeOG6XAAAAAd/elbicho-vicotrevs.gif)
+![](https://media1.tenor.com/m/1nwjs8in1DUAAAAd/el-bicho-tomando-jugo-cr7.gif)
